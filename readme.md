@@ -2,4 +2,4 @@
 
 ----
 
-![](http://i.imgur.com/7k3dPwJ.png)
+![](http://i.imgur.com/cZzUid9.png)
